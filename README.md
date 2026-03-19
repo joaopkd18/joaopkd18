@@ -14,3 +14,23 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+Novo repositório do GitHub
+
+Oi eu sou o joao paulo 🔥
+
+Tenho 15 anos
+
+Moro no Interior de Minas Patrocínio
+
+Pretendo cursar gastronomia 🍸
+
+Sou atleta de volei treino a 8 anos 🏐
+
+Sou vice campeão no estadual do jemg 🏆
+
+Pratico atletismo 🏃
+
+Sou amigo do Kid Flash 🆘
+
+Sou do signo de touro ♉
