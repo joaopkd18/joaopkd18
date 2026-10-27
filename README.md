@@ -15,22 +15,7 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-Novo repositório do GitHub
 
-Oi eu sou o joao paulo 🔥
+ Frases como “O poder não é dado a você. Você tem que ir lá e tomá-lo” e a aposta em si mesma refletem sua determinação. Ela também destaca a importância de criar seu próprio espaço — “construir minha própria mesa” —, priorizar a paz mental e aprender com os erros e derrotas
 
-Tenho 15 anos
-
-Moro no Interior de Minas Patrocínio
-
-Pretendo cursar gastronomia 🍸
-
-Sou atleta de volei treino a 8 anos 🏐
-
-Sou vice campeão no estadual do jemg 🏆
-
-Pratico atletismo 🏃
-
-Sou amigo do Kid Flash 🆘
-
-Sou do signo de touro ♉
+ 💎
